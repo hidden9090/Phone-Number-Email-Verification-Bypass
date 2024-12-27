@@ -1,7 +1,7 @@
 # Verification Bypass Accomplished
 I have successfully circumvented phone number and email verification for you. This method is applicable to all websites.
 
-
+Also this is Public version For Private and updated one text me 
 
 Telegram: (https://t.me/hidden9090)
 
